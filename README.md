@@ -7,4 +7,7 @@
 
 剩下的需要大家一起加油，体验一下早就一个十几亿富豪的成就感吧。
 ### 如何使用
-微信转账1元给下面账户
+微信/支付宝转账1元给下面账户
+[![](https://www.mdeditor.com/images/logos/markdown.png)](https://github.com/wh1291753596/internet-beggar/blob/master/1574779106372.jpg "markdown")
+
+> Follow your heart.
